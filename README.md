@@ -1,2 +1,2 @@
-- 👋 Hi, I’m Azman Abdullah
-- 📫 azmanabdlh@yahoo.com
+👋 Hi, I’m Azman Abdullah
+~ Dengan optimis hidup menjadi powerfull 🔥.
