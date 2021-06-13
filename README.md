@@ -1,4 +1,4 @@
-👋 Hi, I’m Azman Abdullah
+Assalamualaikum! 👋 Hi, I’m Azman Abdullah
 
 
 ~ Melampaui batas 🔥.
