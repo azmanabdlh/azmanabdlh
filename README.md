@@ -1,4 +1,4 @@
 Assalamualaikum! 👋 Hi, I’m Azman Abdullah
 
 
-~ Melampaui batas 🔥.
+~ Berusaha diatas rata-rata orang lain 🔥.
