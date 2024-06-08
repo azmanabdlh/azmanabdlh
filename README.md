@@ -1,4 +1,1 @@
-Assalamualaikum! 👋 Hi, I’m Azman Abdullah
-
-
-~ Berusaha diatas rata-rata orang lain 🔥.
+optimistic man <do the best you can>.
