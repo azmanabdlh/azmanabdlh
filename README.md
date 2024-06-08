@@ -1,1 +1,1 @@
-optimistic man <do the best you can>.
+optimistic man || do the best you can
